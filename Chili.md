@@ -7,6 +7,7 @@
 * 2 habanero chili.
 * 2 röda chili.
 * 1 grön chili.
+* 4 lime.
 * 6 vitlöksklyftor.
 * Paprikapulver.
 * 1 liter ljust öl.
@@ -23,8 +24,8 @@ Låt detta sjuda under lock i 6 timmar. Rör någon gång i timmen och se till a
 Under tiden, strimla fläsket och stek på låg värme tills bitarna är knaperstekta och mycket fett smält av. 
 Blanda detta i huvudblandningen.
 
-Efter cirka 4 timmar ska köttet ha fallit sönder. Strimla då paprikan och tillsätt tillsammans med paprikapulver och Tabasco.
+Efter cirka 4 timmar ska köttet ha fallit sönder. Strimla då paprikan och tillsätt tillsammans med paprikapulver, 2 pressade lime, och Tabasco.
 
 När paprikan smält ut i köttblandningen tillsätts bönorna. Smaka av och tillsätt salt och peppar.
 
-Servera med basmatiris och en klick turkisk yoghurt.
+Servera med basmatiris, en klick turkisk yoghurt, och en limeklyfta.
