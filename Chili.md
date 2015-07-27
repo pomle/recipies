@@ -1,7 +1,7 @@
 # Chili
 
 * 1000 gram högrev.
-* 200 gram stekfläsk.
+* 400 gram stekfläsk.
 * 2 röda paprikor.
 * 2 gröna paprikor.
 * 2 habanero chili.
